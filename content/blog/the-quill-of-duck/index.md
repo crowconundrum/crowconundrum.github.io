@@ -62,4 +62,3 @@ But as he came to his wits and regained his senses, he got up from his desk and 
 All of his co-workers were gone. What could it mean? Stanley decided to go to the meeting room; perhaps he had simply missed a memo.
 
 yep
-s
